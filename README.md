@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-My name in Galang Wijonarko 
+My name is Galang Wijonarko 
 ## 🚀 About Me
 I study at Cilacap State Polytechnic
 
